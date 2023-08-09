@@ -5,5 +5,4 @@ Monitor: Samuel Levi Alves Cruz
 <br>
 
 ## Avisos
-### Definição horário Monitoria
-https://docs.google.com/forms/d/e/1FAIpQLSch8rkEEXwBOCeyZu6Aia3vxu_xvd-lErFXAuKr3t44Sy4Yvw/viewform?pli=1
+[Enquete definição Horário Monitoria](https://docs.google.com/forms/d/e/1FAIpQLSch8rkEEXwBOCeyZu6Aia3vxu_xvd-lErFXAuKr3t44Sy4Yvw/viewform?pli=1)
