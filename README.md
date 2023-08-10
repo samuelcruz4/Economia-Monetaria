@@ -5,4 +5,4 @@ Monitor: Samuel Levi Alves Cruz (samuel_cruz@usp.br)
 <br>
 
 ## Avisos
-[Enquete definição Horário Monitoria](https://docs.google.com/forms/d/e/1FAIpQLSch8rkEEXwBOCeyZu6Aia3vxu_xvd-lErFXAuKr3t44Sy4Yvw/viewform?pli=1)
+
