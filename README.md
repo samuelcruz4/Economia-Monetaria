@@ -6,6 +6,8 @@ Monitor: Samuel Levi Alves Cruz (samuel_cruz@usp.br)
 
 ## Avisos
 
-[Enquete definição Horário Monitoria](https://docs.google.com/forms/d/e/1FAIpQLSczzYxPu7SzLmeh9EqoUAIXtHxwuPTVMLI70nS-nbaPt_txSQ/viewform)
+Nossas monitorias serão as quartas 19-20 horas
+
+[Monitoria 23/08](https://meet.google.com/zjq-nyff-bns)
 
 [Grupo Whatsapp](https://chat.whatsapp.com/FuNmRDfmitk4CEOgoUGqLb).
