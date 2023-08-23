@@ -8,6 +8,6 @@ Monitor: Samuel Levi Alves Cruz (samuel_cruz@usp.br)
 
 Nossas monitorias serão as quartas 19-20 horas
 
-[Monitoria 23/08](https://meet.google.com/zjq-nyff-bns)
+[Monitoria 23/08 - Sala 12 Bloco B](https://meet.google.com/zjq-nyff-bns)
 
 [Grupo Whatsapp](https://chat.whatsapp.com/FuNmRDfmitk4CEOgoUGqLb).
