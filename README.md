@@ -17,3 +17,4 @@ Nossas monitorias serão as quartas 19-20 horas
 <br>
 
 ## Resolução Lista 1
+[Resolução Lista 1](https://github.com/samuelcruz4/Economia-Monetaria/files/12539213/Resolucao.Lista.1.pdf)
