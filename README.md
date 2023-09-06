@@ -11,3 +11,9 @@ Nossas monitorias serão as quartas 19-20 horas
 [Link Monitora - (Presencial)Sala 12 Bloco B](https://meet.google.com/zjq-nyff-bns)
 
 [Grupo Whatsapp](https://chat.whatsapp.com/FuNmRDfmitk4CEOgoUGqLb).
+
+---
+
+<br>
+
+## Resolução Lista 1
