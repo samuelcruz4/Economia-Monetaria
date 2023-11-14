@@ -15,6 +15,10 @@ Nossas monitorias serão as quartas 19-20 horas
 ---
 <br>
 
+## Resolução Lista 3
+[Resolução Lista 3](https://github.com/samuelcruz4/Economia-Monetaria/files/12738196/Lista_3_Eco_Monetaria_Respostas.pdf)
+<br>
+
 ## Resolução Lista 2
 [Resolução Lista 2](https://github.com/samuelcruz4/Economia-Monetaria/files/12738196/Lista_2_Eco_Monetaria.1.pdf)
 
